@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @yong1010
 - 👀 I’m interested in basketball
 - 🌱 I’m currently learning Introduction to Computer
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on class
 - 📫 How to reach me  yongyuli58@gmail.com
-- 😄 Pronouns: ...
+- 😄 Pronouns: yong
 - ⚡ Fun fact: play basketball
 - 
 
